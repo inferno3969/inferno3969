@@ -7,6 +7,5 @@
 - 👯 I’m looking to collaborate on anything with coding
 - 🤔 I’m looking for help with anything coding related
 - 💬 Ask me about anything
-- 📫 How to reach me: howlingflame39@gmail.com
-- ⚡ Fun fact: I don't know 
-<!-- Hello Dave -->
+- 📫 How to reach me: nathanael.allison39@gmail.com
+- ⚡ Fun fact: ඞා.
